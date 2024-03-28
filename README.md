@@ -4,5 +4,5 @@
 - Vermes.
 
 ### FORMAÇÃO:
-- Arthur Doomer: Cajú e Guitarras
-- Bai Bai: Contra-Balde
+- Arthur Doomer: Cajú & Guitarras
+- Bai Bai: Contra-Balde & Orquestra Afropindorâmica.
